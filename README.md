@@ -15,4 +15,4 @@ Regular exams, professional cleanings, and good oral hygiene protect dental impl
 Persistent pain, unusual swelling, or mobility should be evaluated promptly.
 
 Learn more about dental implant treatment:
-https://magisdental.com/dental-implants/
+https://magisdental.com/dental-services/dental-implants/
